@@ -97,5 +97,5 @@ Año: 2025
 
 ## 📬 Contacto
 
-Wpp: 3195660836
+Wpp: +57 3195660836
 ¿Dudas o sugerencias? Escríbeme a: **johne55teban@gmail.com**
